@@ -32,6 +32,9 @@ https://www.aladin.co.kr/shop/wproduct.aspx?ItemId=50477
 
 돈의 심리학
 
+실전 공매도 ( 2023/05/06 ~ 2023/05/13 )
+https://www.aladin.co.kr/shop/wproduct.aspx?ItemId=220663743
+
 몰입의 즐거움 ( 2023/05/06 ~ 2023/05/13 )
 https://www.aladin.co.kr/shop/wproduct.aspx?ItemId=270812353
 
