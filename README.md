@@ -43,4 +43,6 @@ https://www.aladin.co.kr/shop/wproduct.aspx?ItemId=257972186&start=slayer
 
 투자의 역사는 반드시 되풀이된다. / 정광우 저 ( 2023/06/03 ~ )
 
+머니카피 / 설명왕테이버 (2023/07/09 ~ )
+https://www.aladin.co.kr/shop/wproduct.aspx?ItemId=288521460
 
