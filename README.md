@@ -46,3 +46,4 @@ https://www.aladin.co.kr/shop/wproduct.aspx?ItemId=257972186&start=slayer
 머니카피 / 설명왕테이버 (2023/07/09 ~ )
 https://www.aladin.co.kr/shop/wproduct.aspx?ItemId=288521460
 
+나는 어떻게 삶의 해답을 찾는가 / 고명환 저 (2023/10/12 ~ )
