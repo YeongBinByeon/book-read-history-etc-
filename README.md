@@ -9,6 +9,7 @@ IT 제외 책 읽은 내역 기록하는 Repository
 3. 몸에 벤 어린시절 / 휴 미실다인 저
 https://www.aladin.co.kr/shop/wproduct.aspx?ItemId=50477
 
+4. 관계력 / 김단 저
 
 # 그 외 읽은 책 히스토리 정리 시작
 
