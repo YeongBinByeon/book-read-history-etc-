@@ -69,6 +69,9 @@ https://www.aladin.co.kr/shop/wproduct.aspx?ItemId=288521460
 
 
 # 볼 예정인 책
+
 애도의 기술 / 박우란 저
+
 사랑의 기술 / 에리히 프롬 저
+
 빅터 프랭클의 죽음의 수용소에서 / 빅터 프랭클 저
