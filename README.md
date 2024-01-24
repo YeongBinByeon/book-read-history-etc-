@@ -89,3 +89,7 @@ https://www.aladin.co.kr/shop/wproduct.aspx?ItemId=288521460
 싯다르타
 
 데카르트의 오류 / 안토니오 다마지오 //뇌과학 관련 책
+
+운의 알고리즘 / 정희도 저
+
+서른에 읽는 아들러 / 박예진 저
