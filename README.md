@@ -10,8 +10,7 @@ IT 제외 책 읽은 내역 기록하는 Repository
 https://www.aladin.co.kr/shop/wproduct.aspx?ItemId=50477
 
 4. 관계력 / 김단 저
-
-5. 더 마인드 / 하와이 대저택 저
+   
 
 # 그 외 읽은 책 히스토리 정리 시작
 
@@ -87,6 +86,7 @@ https://www.aladin.co.kr/shop/wproduct.aspx?ItemId=288521460
 
 애니어그램의 지혜 / 돈 리처드 리소, 러스 허드슨 저 ( 2024/02/17 ~ )
 
+기업분석 처음공부 / 체리형부 저 ( 2024/02/19 ~ )
 
 # 볼 예정인 책
 학문의 즐거움 / 히로나카 헤이스케
