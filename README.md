@@ -105,4 +105,6 @@ https://www.aladin.co.kr/shop/wproduct.aspx?ItemId=288521460
 
 절제 수업 / 라이언 홀리데이 저
 
+인생의 오후를 즐기는 최소한의 지혜 / 아서 C. 브룩스 저
+
 
