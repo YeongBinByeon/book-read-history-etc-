@@ -1,15 +1,6 @@
 # book-read-history-etc-
 IT 제외 책 읽은 내역 기록하는 Repository
 
-# 아래 3권은 개인적으로 가장 큰 감명을 받은 책
-1. 설득의 심리학 1,2 / 로버트 치알디니 저
-
-2. 부의 추월차선 / 엠제이 드마코 저
-
-3. 몸에 벤 어린시절 / 휴 미실다인 저
-https://www.aladin.co.kr/shop/wproduct.aspx?ItemId=50477
-
-4. 관계력 / 김단 저
    
 
 # 그 외 읽은 책 히스토리 정리 시작
