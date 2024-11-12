@@ -221,6 +221,8 @@ https://www.aladin.co.kr/shop/wproduct.aspx?ItemId=288521460
 
 (2회독) 관계력 / 김단 저 ( 2024/11/09 ~ )
 
+역주행의 비밀 / 김단 저 ( 2024/11/12 ~ )
+
 
 # 볼 예정인 책
 
