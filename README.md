@@ -34,7 +34,7 @@ https://www.aladin.co.kr/shop/wproduct.aspx?ItemId=270812353
 MBTI의 의미MBTI는 과학인가? ( 2023/05/16 ~ 2023/05/17 )
 https://www.aladin.co.kr/shop/wproduct.aspx?ItemId=257972186&start=slayer
 
-투자의 역사는 반드시 되풀이된다. / 정광우 저 ( 2023/06/03 ~ )
+투자의 역사는 반드시 되풀이된다. / 정광우 저 ( 2023/06/03 ~ 2024/12/08 )
 
 머니카피 / 설명왕테이버 ( 2023/07/09 ~ )
 https://www.aladin.co.kr/shop/wproduct.aspx?ItemId=288521460
