@@ -239,6 +239,7 @@ https://www.aladin.co.kr/shop/wproduct.aspx?ItemId=288521460
 
 보랏빛 소가 온다 / 세스 고딘 저 ( 2024/12/18 ~ )
 
+위기의 역사 / 오건영 저 ( 2024/12/22 ~ )
 
 
 # 볼 예정인 책
