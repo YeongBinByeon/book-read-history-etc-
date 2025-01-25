@@ -257,3 +257,4 @@ https://www.aladin.co.kr/shop/wproduct.aspx?ItemId=288521460
 
 잘난 놈 심리학 / 로버트 A. 글로벌 저 ( 2025/01/22 ~ )
 
+최고의 공부 / 켄 베인 저 ( 2025/01/25 ~ )
